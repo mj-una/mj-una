@@ -13,7 +13,7 @@
 
 <br>
 
-<p align="center"> <a href="https://www.youtube.com/watch?v=8WcZCF4i9FM&t=403s" target="_blank" rel="noopener noreferrer"><b>click aquí para ver<br>↳↳↳  c o r e ~5~  ↲↲↲</b></a></p>
+<p align="center"> <a href="https://www.youtube.com/watch?v=8WcZCF4i9FM&t=261s" target="_blank" rel="noopener noreferrer"><b>click aquí para ver<br>↳↳↳  c o r e ~5~  ↲↲↲</b></a></p>
 
 <br>
 <br>
